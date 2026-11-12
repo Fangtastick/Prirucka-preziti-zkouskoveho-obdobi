@@ -1,0 +1,1 @@
+# Prirucka-preziti-zkouskoveho-obdobi
